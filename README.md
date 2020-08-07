@@ -1,4 +1,4 @@
-# Jonathan Chen — @jowch
+# Jonathan Chen
 
 Hi there! 👋
 
